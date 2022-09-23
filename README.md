@@ -10,6 +10,6 @@
 - 🔭 A proucura de mais e mais exp;
 - 🌱 Cursando Python | Entra21 - Blusoft; 
 - 🤔 Aprendendo de tudo um pouco;
-- ⚡ Fato curioso: Eu sou ruivo ¯\_ (ツ) _/¯
+- ⚡ Fato curioso: Eu sou ruivo ¯\\_ (ツ) _/¯
 
 ### Para mais contatos me proucure [aqui]( https://linktr.ee/joilsu_) 
